@@ -1,0 +1,1 @@
+# hotel_camp_kick_off
